@@ -1,3 +1,3 @@
 # Nolan Martin
 
-[Zettelkasten](zettelkasten.md)
+[Zettelkasten](zettelkasten/zettelkasten.md)
