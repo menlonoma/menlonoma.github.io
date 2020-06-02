@@ -1,3 +1,3 @@
 # Speaking
 
-[How To Speak, Patrick Winston (2018)](material/speakwinston.md)
+[How To Speak, Patrick Winston (2018)](../material/speakwinston.md)
