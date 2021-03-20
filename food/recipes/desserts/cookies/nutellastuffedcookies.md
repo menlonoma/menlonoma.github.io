@@ -28,7 +28,7 @@ Yield: 24 cookies
 
 5. In a large bowl, whisk together flour, baking soda and salt. Slow add the dry ingredients to wet ingredients and mix on low until well combined. Add the chocolate chips and mix again until just combined.
 
-6. Cover your bowl and chill your dough for 2 hours in the refrigerator, or place in freezer for 20-30 minutes if you are super eager, although I cannot promise the same results if you do this.
+6. Cover your bowl and chill your dough for 2 hours in the refrigerator, or place in freezer for 20-30 minutes.
 
 7. Preheat the oven to 350 degrees F. Once dough is chilled measure about 1 1/2 tablespoons of dough and roll into a ball.
 

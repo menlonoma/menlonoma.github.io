@@ -15,7 +15,7 @@ Yield: 18 cookies
 - Flaky sea salt
 
 ## Process
-1. Cook butter in a medium saucepan over medium heat, stirring often, until it foams, then browns, 5–8 minutes. Scrape into a large bowl and let cool slightly., about 10 minutes (an instant-read thermometer should register 125°).
+1. Cook butter in a medium saucepan over medium heat, stirring often, until it foams, then browns, 5–8 minutes. Scrape into a large bowl and let cool slightly, about 10 minutes (an instant-read thermometer should register 125°).
 
 2. Meanwhile, whisk flour, baking soda, and kosher salt in a medium bowl.
 
